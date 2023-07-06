@@ -1,5 +1,5 @@
 # 💫 SOBRE MIM:
-🐵 Um pequeno macaquinho solitario em busca de conquistar <br>o mundo
+🐵 Um pequeno macaquinho solitario em busca de conquistar o mundo
 
 
 ## 🌐 REDES SOCIAIS:
